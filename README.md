@@ -41,6 +41,6 @@ I’m "Daoili Mark Mathew Bose"
 ---
 
 ### 📫 Contact
-- **Email: aivannebaula6email@gmail.com**
+- **Email: bosemarkmathew@gmail.com**
 
 
